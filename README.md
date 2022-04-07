@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @cristinang
-- 👀 I’m interested in ...
+- 👀 I’m intereste COLABORAR EN ALGUN PROYECTO...
 - 🌱 I’m currently learning  FRONTEND
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me  
+- 📫 How to reach me : POR CORREO ELECTRONICO --> CRISTINANG20@GMAIL.COM 
 - 
 
 <!---
